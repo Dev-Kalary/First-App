@@ -7,3 +7,6 @@ You can download in google play store
 ![20210927_155655](https://user-images.githubusercontent.com/97687889/149378986-bd1644de-838d-4b45-8028-25c59f204ece.png)
 
 [Download link Here](https://play.google.com/store/apps/details?id=com.dya.surat)
+ 
+ 
+ Dev-Kalary Is Best All Time
